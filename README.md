@@ -1,1 +1,3 @@
-# MyRecipes
+# caramel-apple-crumble
+my recipe
+This recipe is an idea that came to my head while pondering my amazing chef abiblites. It rang like a bell in my head, quite contrary to the silence that was my kitchen. The only time the kitchen of my world-famous resteraunt is quiet, are the early hours of the morning before the buzz of the day. And one morning, looking out the windows freshly coated with a cool layer of frost, and out into the forest miraculously changing from summer green to autumn reds and yellows, I appreciated that silence of my kitchen. Because of my world-class cooking abilities, that silence never stayed for long--people were always so eager to try my new ideas--so I decided to turn that soothing quiet into something I can do: bake. So, here I present to you my Caramel Apple Crumble, the peaceful quiet of an autumn morning, and you, my lucky friend are the first to try it! :) 
